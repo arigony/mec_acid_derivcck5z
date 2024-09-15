@@ -1,1 +1,0 @@
-# mec_acid_derivcck5z
